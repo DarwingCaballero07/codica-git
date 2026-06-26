@@ -1,1 +1,1 @@
-# Mi Dios es mi dueños, gracias
+# Mi Dios es mi pastor
